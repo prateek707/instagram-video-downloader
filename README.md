@@ -45,4 +45,57 @@ you want to save for taking future references or any similar thing. </p>
 
 <p>All need to keep in mind is that you can only save from Instagram the pictures and videos from the profiles that are either followed by you or are in the public visibility mode. But if you are looking forward to downloading the instadp of the profile it can be done
 for both the private and public profiles.</p>
+
+<p>
+  Keywords: instagram video downloader
+instagram photo downloader
+instagram image downloader
+save instagram photos
+how to save photos from instagram
+how to save pictures on instagram
+save instagram photos
+how to save instagram photos
+download all instagram photos from any user
+how to save pictures from instagram
+how to download instagram photos
+how to save a picture from instagram
+how to download instagram photos on pc
+how to save instagram pictures
+how to save an image from instagram
+how to download pictures from instagram
+how to post a picture on instagram on a computer
+how to save instagram photos on pc
+how to save instagram profile picture
+how to save a photo from instagram
+how to copy instagram photos
+save photos from instagram
+how to save a picture on instagram
+how to copy photos from instagram
+how to copy pictures from instagram
+how to save instagram photos to phone
+how to download photos from instagram
+how to save images on instagram
+app to save instagram photos
+download all instagram photos
+how do you save pictures on instagram
+how do you save pictures from instagram
+how to post pictures on instagram from pc
+save pics from instagram
+instagram video downloader
+download instagram videos
+video downloader for instagram
+instagram downloader
+save instagram videos
+instagram save video
+instagram video download
+how to save a video from instagram
+how to download instagram videos
+how to save a video from instagram
+download instagram video
+how to save instagram videos
+how to save an instagram video
+save videos from instagram
+how to save videos from instagram
+instagram video saver
+</p>
 </article>
